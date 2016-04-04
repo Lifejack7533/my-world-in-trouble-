@@ -1,0 +1,1 @@
+That said, if I had to pick one function I think the Internet will turn out to "be," it is this: The Internet will become a repository and a set of applications for storing the sum total of all life experiences of all people on earth.
